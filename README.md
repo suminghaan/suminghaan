@@ -1,4 +1,4 @@
-## Hi there 👋
+## 수밍의 개발 일기 깃허브에 오신것을 환영합니다 👋
 
 <!--
 **suminghaan/suminghaan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
