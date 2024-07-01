@@ -40,7 +40,7 @@ Instagram : [minggle____s](https://www.instagram.com/mingggle____s?igsh=MXh0azRn
 
 📄 Portfolio
 
-notion : https://www.notion.so/sumingg/8e3988bd3e914b8c89d43c07b6fc3d66
+notion : [https://www.notion.so/sumingg/8e3988bd3e914b8c89d43c07b6fc3d66](https://sumingg.notion.site/8e3988bd3e914b8c89d43c07b6fc3d66)
 
 <br/>
 
